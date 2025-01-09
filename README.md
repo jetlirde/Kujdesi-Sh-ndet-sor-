@@ -1,2 +1,2 @@
-# Kujdesi-Sh-ndet-sor-
+# Kujdesi Shendetesor
 Kujdesi Shëndetësor 🩺
